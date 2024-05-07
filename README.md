@@ -5,8 +5,8 @@
 - 📫 How to reach me german.n1@hotmail.com // https://www.linkedin.com/in/german-nigro-338bb832/ 
 - 😄 Pronouns: He/Him
 - ⚡ Fun facts:
-                - ⚽ Stand with Club Atletico Nueva Chicago: https://g.co/kgs/MvoDHQr
-                - 🍔 Own my fast food restaurant: https://maps.app.goo.gl/KePUfaTTuJqZqwsV7 
+⚽ Stand with Club Atletico Nueva Chicago: https://g.co/kgs/MvoDHQr
+🍔 Own my fast food restaurant: https://maps.app.goo.gl/KePUfaTTuJqZqwsV7 
 
 <!---
 GermanNigro/GermanNigro is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
